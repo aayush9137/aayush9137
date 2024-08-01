@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aayush9137
 - 👀 I’m interested in earning a money
-- 🌱 I’m currently learning computer science
+- 🌱 I’m Just passout my Computer Science Degree
 - 💞️ I’m looking to collaborate on all the projects
 - 📫 you can contact with me by a email.
 
